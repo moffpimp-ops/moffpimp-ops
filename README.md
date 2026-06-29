@@ -1,5 +1,5 @@
 ## Hey bitches, my name is Mother Mother (no relation to the band of the same name...) I'm making this staff for my Pony Town account. Thanks, byyyee^^.
-**git add https://x.com/i/status/1490269128627654658
+
 <!--
 **moffpimp-ops/moffpimp-ops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
