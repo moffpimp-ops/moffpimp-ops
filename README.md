@@ -13,7 +13,16 @@
 
 <img src="https://i.postimg.cc/bJ3Ks0Pj/IMG-20260629-232851-703.jpg" alt="sjw9q11" width=200>
 
-               Kinn list
+
+
+
+
+
+
+<p align="center">
+$\color{#c6215b}{\textsf{"Kinn list"}}$
+
+
 
 – Valentino • Hazbin hotel 
 
