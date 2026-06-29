@@ -37,3 +37,14 @@ $\color{#c6215b}{\textsf{"Kinn list"}}$
 – Queen Scarlet • Wings of fire 
 
 – Scaramouche • Genshin impact 
+
+<p align="center">
+$\color{#d7002d}{\textsf{So call me "Sir"}}$
+<p align="center">
+$\color{#d7002d}{\textsf{Call me "Daddy"}}$
+<p align="center">
+$\color{#d7002d}{\textsf{Call me "C E O"}}$
+<p align="center">
+$\color{#d7002d}{\textsf{But for you, baby doll?}}$
+<p align="center">
+$\color{#d7002d}{\textsf{Just call me VALENTINO}}$
