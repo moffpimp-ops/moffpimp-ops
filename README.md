@@ -6,8 +6,12 @@
 
 ★Kinn list★
 
-Valentino
-(BlueyCapsules) William Afton
-Starscream
-Till
-Queen Scarlet
+-Valentino
+
+-(BlueyCapsules) William Afton
+
+-Starscream
+
+-Till
+
+-Queen Scarlet
