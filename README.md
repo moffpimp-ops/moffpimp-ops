@@ -15,12 +15,14 @@
 
                Kinn list
 
-- Valentino • Hazbin hotel 
+– Valentino • Hazbin hotel 
 
-- William Afton • FNaF/BlueyCapsules 
+– William Afton • FNaF/BlueyCapsules 
 
-- Starscream • Transformers 
+– Starscream • Transformers 
 
-- Till • Alien Stage 
+– Till • Alien Stage 
 
-- Queen Scarlet • Wings of fire 
+– Queen Scarlet • Wings of fire 
+
+– Scaramouche • Genshin impact 
