@@ -38,6 +38,8 @@ $\color{#c6215b}{\textsf{"Kinn list"}}$
 
 – Scaramouche • Genshin impact 
 
+– Queen Chrysalis • My little pony 
+
 ‿︵‿︵‿︵‿୨༶•┈୨♡୧┈•༶୧‿︵‿︵‿︵‿
 
 <p align="center">
