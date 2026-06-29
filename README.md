@@ -39,6 +39,9 @@ $\color{#c6215b}{\textsf{"Kinn list"}}$
 – Scaramouche • Genshin impact 
 
 <p align="center">
+   <img src="https://64.media.tumblr.com/ea719412a57386e3c1e3038292600dc4/b5e59c5670da5da4-a1/s400x600/770f7a63b8951442d02a82e02ae94063429b3c7d.gifv" alt="iwjaiw" width=150/></p>
+
+<p align="center">
 $\color{#d7002d}{\textsf{So call me "Sir"}}$
 <p align="center">
 $\color{#d7002d}{\textsf{Call me "Daddy"}}$
