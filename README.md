@@ -2,10 +2,10 @@
 
 
 
-<img src="https://x.com/i/status/1490269128627654658" alt="Valentino">
+
+<img src="https://i.postimg.cc/mkHm37M4/IMG-20260629-224036-962.jpg" alt="jdjei" width=300>
 
 
-<img src="ссылка_на_картинку.gif" alt="Valentino" width="300">
 
 
 
