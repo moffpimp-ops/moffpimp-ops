@@ -72,4 +72,4 @@ $\color{#d7002d}{\textsf{Just call me VALENTINO}}$
 
 ## Don't hate me, love me!💞
 
-
+<img src="https://i.postimg.cc/VvsmhLfn/IMG-20260629-232851-424.jpg" alt="rjsi" width=300>
