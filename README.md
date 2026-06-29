@@ -1,4 +1,4 @@
-## Hey bitches, my name is Mother Mother (no relation to the band of the same name...) I'm making this staff for my Pony Town account. Thanks, byyyee^^.
+## Hey bitches, my name is Mother Mother, /Мать Мать in Russian/ (no relation to the band of the same name...) I'm making this staff for my Pony Town account. Thanks, byyyee^^.
 
 
 
@@ -40,6 +40,20 @@ $\color{#c6215b}{\textsf{"Kinn list"}}$
 
 – Queen Chrysalis • My little pony 
 
+– Vincent • Dead plate 
+
+– Shigaraki Tomura • My hero academia 
+
+– Heather Duke • Heathers 
+
+– Andrealphus • Helluva Boss
+
+– Queen • Deltarune 
+
+– X!Gaster • X!Tale/Underverse
+
+
+
 ‿︵‿︵‿︵‿୨༶•┈୨♡୧┈•༶୧‿︵‿︵‿︵‿
 
 <p align="center">
@@ -55,3 +69,7 @@ $\color{#d7002d}{\textsf{Call me "C E O"}}$
 $\color{#d7002d}{\textsf{But for you, baby doll?}}$
 <p align="center">
 $\color{#d7002d}{\textsf{Just call me VALENTINO}}$
+
+## Don't hate me, love me!💞
+
+
