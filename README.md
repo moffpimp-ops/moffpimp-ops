@@ -11,15 +11,16 @@
 
 • 𝘿𝙉𝙄 — 𝙏𝙧𝙖𝙣𝙨𝙥𝙝𝙤𝙗𝙚𝙨, 𝙧𝙖𝙘𝙞𝙨𝙩𝙨, 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙚𝙨, 𝙥𝙚𝙙𝙤𝙥𝙝𝙞𝙡𝙚𝙨, 𝙯𝙤𝙤𝙥𝙝𝙞𝙡𝙚𝙨,  𝙍𝙪𝙨𝙨𝙞𝙖 𝙨𝙪𝙥𝙥𝙤𝙧𝙩𝙚𝙧𝙨.
 
+<img src="https://i.postimg.cc/bJ3Ks0Pj/IMG-20260629-232851-703.jpg" alt="sjw9q11" width=200>
 
-★Kinn list★
+               Kinn list
 
--Valentino
+- Valentino • Hazbin hotel 
 
--(BlueyCapsules) William Afton
+- William Afton • FNaF/BlueyCapsules 
 
--Starscream
+- Starscream • Transformers 
 
--Till
+- Till • Alien Stage 
 
--Queen Scarlet
+- Queen Scarlet • Wings of fire 
