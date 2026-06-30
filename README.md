@@ -52,6 +52,10 @@ $\color{#c6215b}{\textsf{"Kinn list"}}$
 
 – X!Gaster • X!Tale/Underverse
 
+– Jax • The amazing digital circus 
+
+– Yoonbum • Killing Stalking 
+
 
 
 ‿︵‿︵‿︵‿୨༶•┈୨♡୧┈•༶୧‿︵‿︵‿︵‿
