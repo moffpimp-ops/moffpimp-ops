@@ -24,7 +24,7 @@
 <p align="center">
 $\color{#c6215b}{\textsf{"Kinn list"}}$
 
-
+<img src="https://i.postimg.cc/NfFPTWV6/IMG-20260630-160933-219.jpg" alt="sjw9q11" windth=300>
 
 – Valentino • Hazbin hotel 
 
